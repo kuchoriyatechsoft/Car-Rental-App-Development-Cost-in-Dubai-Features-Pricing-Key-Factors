@@ -1,6 +1,6 @@
 # How Much Does a Car Rental App Cost in Dubai in 2026?
 
-![Car Rental App Cost](https://kuchoriya-software.s3.ap-south-1.amazonaws.com/Image/Graph_%2818%29_1789992086457.webp)
+![Car Rental App Cost](https://kuchoriya-software.s3.ap-south-1.amazonaws.com/Image/How_Much_Does_a_Car_Rental_App_Cost_in_Dubai_in_2026_1790588424365.png)
 
 ---
 
